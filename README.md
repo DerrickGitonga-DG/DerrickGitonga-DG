@@ -30,8 +30,8 @@
 ---
 
 ### 📫 Connect With Me
-
-- 📧 [derrick.gitonga@example.com](mailto:derrick.gitonga@example.com)  
+- Linked In [https://www.linkedin.com/in/derrick-kithae-39297531a/]
+- 📧 [derrickgk254@gmail.com] 
 
 ---
 
